@@ -1,0 +1,6 @@
+---
+{"dg-publish":true,"permalink":"/graveyard-of-the-stars/the-world/gods/moder-fader-and-kin/moder/"}
+---
+
+
+"The Mother " Goddess Of The weave & sky, Wife to Fader, Mother to The Heptarchs Eternal.([[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Aureon & Kin/Nyzawrath\|Nyzawrath]], [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Dormun & Kin/Dormun\|Dormun]], [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Envaxis & Kin/Envaxis\|Envaxis]], [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Glavhor & Kin/Glavhor\|Glavhor]], [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Nyzawrath & Kin/Aureon\|Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Nyzawrath & Kin/Aureon]], [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Thalgrin & Kin/Thalgrin\|Thalgrin]], & [[Graveyard of the Stars/The World/Gods/Moder, Fader & Kin/Velmoria & Kin/Velmoria\|Velmoria]]) One of the Various Primordial. [[Graveyard of the Stars/The World/Gods/Gods\|Gods]].
