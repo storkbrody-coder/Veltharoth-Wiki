@@ -8,3 +8,5 @@
 
 ![Pasted image 20260205203906.png](/img/user/extras(you%20need%20these)/Pasted%20image%2020260205203906.png)
 ![Pasted image 20260206210350.png](/img/user/extras(you%20need%20these)/Pasted%20image%2020260206210350.png)
+![Pasted image 20260303211805.png](/img/user/extras(you%20need%20these)/Pasted%20image%2020260303211805.png)![Pasted image 20260303211829.png](/img/user/extras(you%20need%20these)/Pasted%20image%2020260303211829.png)
+![Pasted image 20260303211911.png](/img/user/extras(you%20need%20these)/Pasted%20image%2020260303211911.png)
