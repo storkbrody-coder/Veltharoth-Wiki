@@ -3,7 +3,7 @@
 ---
 
 Howdy, This is where session summaries will be!
-Session notes will be from the most recent down (3rd session at the top, then the 2nd, the the first. you get it)
+Session notes will be from the most recent down (3rd session at the top, then the 2nd, the the first. you get it.)
 
 Session 3.5: The Vancening.
 JD Vance, the group and [[Graveyard of the Stars/Players/Gam Gam\|Gam Gam]] fly out from the portal, fighting in the rubble of the [[Graveyard of the Stars/The World/Veltharoth/Realms/The Everplains/Cities and Towns/Brambleford/Brambleford\|Brambleford]] city hall. [[Graveyard of the Stars/Players/Gam Gam\|Gam Gam]] Rev's her engines and launches JD Vance into the city fountain. Then she turns around and ***Fucking*** Vaporizes him, launching herself off into the distance, going through [[Graveyard of the Stars/The World/Veltharoth/Realms/The Everplains/Cities and Towns/Brambleford/Brambleford\|Brambleford]] Guard HQ.
